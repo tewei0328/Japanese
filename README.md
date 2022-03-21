@@ -1,4 +1,6 @@
 # Japanese
+https://youtu.be/vbylTIuehyQ
+
 上昇トレンド　に　なりました
 Jōshō torendo ni narimashita
 它變成了一個上升趨勢
