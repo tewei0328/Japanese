@@ -20,3 +20,7 @@ Watashi wa nihongo ga totemo jōzudesu
 日本語が下手になりました
 Nihongo ga heta ni narimashita
 我日語變不好
+
+将来、上手になりたいです。
+Shōrai, jōzu ni naritaidesu.
+我想在未來變得更好。
