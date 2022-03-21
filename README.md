@@ -6,3 +6,11 @@ Jōshō torendo ni narimashita
 下降トレンド　に　なりました
 Kakō torendo
 變成了下跌趨勢
+
+日本語が上手になりました
+Nihongo ga jōzu ni narimashita
+我日語變好
+
+私は日本語がとても上手です
+Watashi wa nihongo ga totemo jōzudesu
+我很擅長日語
